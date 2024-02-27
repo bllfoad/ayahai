@@ -116,8 +116,6 @@ Best regards,
 
 # **Bllfoad**, **Mushafalummah**
 
-# The **QRvision** Team
-<img src="https://i.imgur.com/UFa8u5P.png" width="100">
 <img src="https://i.imgur.com/Vez4oz4.png" width="200">
 
 
